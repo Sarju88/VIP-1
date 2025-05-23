@@ -5,7 +5,7 @@ CodeX
 
 Codex is a gaming website where you can play unblocked games without disruptions.
 
-The password to enter is: codex123
+The password to enter is: gamz69
 
 ## Cloning
 
